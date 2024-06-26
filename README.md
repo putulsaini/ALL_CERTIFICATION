@@ -12,3 +12,5 @@
 [sql_basic certificate hacker rank.pdf](https://github.com/user-attachments/files/15924041/sql_basic.certificate.hacker.rank.pdf)
 
 [VLOOKUP CERTIFICATE.pdf](https://github.com/user-attachments/files/15924044/VLOOKUP.CERTIFICATE.pdf)
+
+[sql_intermediate certificate.pdf](https://github.com/user-attachments/files/15984376/sql_intermediate.certificate.pdf)
