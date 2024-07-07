@@ -2,6 +2,8 @@
 
 ![MyXvBcppsW2FkNYCX_Tata Group_7A6eA7FTtYajmwvdJ_1719937721639_completion_certificate_page-0001](https://github.com/putulsaini/ALL_CERTIFICATION/assets/156244133/feda9eca-d915-47d8-9ce1-1cebbd1d0e02)
 
+![PwC Switzerland Power BI_page-0001](https://github.com/putulsaini/ALL_CERTIFICATION/assets/156244133/f7fa154d-8463-4432-8260-1c87597a2e27)
+
 ![excel certificate_page-0001](https://github.com/putulsaini/ALL_CERTIFICATION/assets/156244133/4f04d0ef-5378-4fdd-b045-82802c797aff)
 
 ![Forage accenture_page-0001](https://github.com/putulsaini/ALL_CERTIFICATION/assets/156244133/466a3733-d975-4ef2-8d35-39b20360b0d4)
