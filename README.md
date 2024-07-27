@@ -1,5 +1,9 @@
 # ALL_CERTIFICATION
 
+![gradly_page-0001](https://github.com/user-attachments/assets/e5208af5-64e1-4cf6-aa4c-02616c4496d8)
+
+![a29c7273-7bbc-4beb-9302-90b9b3d403fd](https://github.com/user-attachments/assets/e50fde93-663a-4d57-b642-f9701b375816)
+
 ![MyXvBcppsW2FkNYCX_Tata Group_7A6eA7FTtYajmwvdJ_1719937721639_completion_certificate_page-0001](https://github.com/putulsaini/ALL_CERTIFICATION/assets/156244133/feda9eca-d915-47d8-9ce1-1cebbd1d0e02)
 
 ![PwC Switzerland Power BI_page-0001](https://github.com/putulsaini/ALL_CERTIFICATION/assets/156244133/f7fa154d-8463-4432-8260-1c87597a2e27)
